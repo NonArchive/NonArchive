@@ -1,4 +1,4 @@
-# **Hi there, I’m ~~@NonArchive~~ ~~Milan~~ @NonArchive** 👋
+# **Hi there, I’m @NonArchive** 👋
 
 ## Welcome to my GitHub profile
 ## ⚠ Если вы питонист!!! ⚠ 🔞🔞🔞🚫🚫🚫✋🏿✋🏿✋🏿
